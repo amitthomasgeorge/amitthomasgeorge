@@ -9,8 +9,6 @@
   
 - How to connect me
   **amitthomas2017@gmail.com**
-  
-- ⚡ Pursuing **BTech Computer Science** at College Of Engineering Kidangoor
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
